@@ -1,1 +1,1 @@
-https://mikamidies.github.io/Natural/
+https://jafartulaganov.github.io/Naturel/
